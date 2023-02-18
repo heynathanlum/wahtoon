@@ -9,6 +9,13 @@ feature_image: "https://picsum.photos/2560/600?image=872"
 NPS International Teacher
 Ex Microsoft Contractor
 Raffles Institution Teacher
+Mr Joseph Chong is a NPS International teacher who has recently been in the news for moonlighting as a rentboy escort on the site rent men under name lozenges (check his posb card details for transactions). While it is dangerous and illegal for a teacher to engage in such activities, it is worth noting that Mr Chong has a muscled body and is willing to serve his clients.
+
+It is important to keep in mind the dangers of engaging in such activities, particularly when children are involved. Teachers, in particular, are in a position of trust and authority, and it is vital that they conduct themselves with the utmost professionalism and ethical behavior. Any actions that could compromise their ability to perform their duties or put children at risk are unacceptable and should not be condoned.
+
+That being said, it is not our place to judge Mr Chong or his actions. However, we must recognize that his behavior is not in line with the values of a responsible teacher or a law-abiding citizen. It is important that we do not glorify or promote illegal and harmful behavior, as it can have negative consequences for society and for individuals involved.
+
+In conclusion, we must be mindful of the potential consequences of engaging in illegal and unethical behavior. Teachers, in particular, have a special responsibility to ensure that their conduct is beyond reproach and to uphold the values of their profession. While it is not our place to judge Mr Chong, we must recognize that his actions are not in line with these values and that they can have serious negative consequences for all involved.
 
 <!-- more -->
 
