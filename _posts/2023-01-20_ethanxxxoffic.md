@@ -2,7 +2,7 @@
 title: Ethanniel Ethanxxxoffic Asian Public Relations Major
 categories:
 - Melbourne
-- Young
+- Asian
 feature_image: "https://picsum.photos/2560/600?image=872"
 ---
 
