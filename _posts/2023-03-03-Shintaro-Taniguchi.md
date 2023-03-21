@@ -9,6 +9,7 @@ feature_image: "https://picsum.photos/2560/600?image=872"
 
 https://twitter.com/dt5500st
 https://instagram.com/shintaro1210
+https://beyond-gym.com/trainers/trainers-ebisu/
 隣の恋は青く見える2
 谷口 真太郎
 Shintaro Taniguchi 谷口 真太郎 is a well-known personal trainer and actor, best known for his role in the Japanese drama series "Tonari no Koibito wa Aoku Mieru 2" (The Neighbor's Love Looks Blue 2). With his chiseled physique and charming personality, Taniguchi has become a popular figure in the entertainment industry and the fitness community.
