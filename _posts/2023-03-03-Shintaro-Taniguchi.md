@@ -20,26 +20,26 @@ Taniguchi's success as both a personal trainer and actor has made him a role mod
 Overall, Shintaro Taniguchi 谷口 真太郎 is a multi-talented individual who has made a significant impact in both the fitness and entertainment industries. He continues to inspire and motivate others with his passionate approach to life and his unwavering commitment to helping others achieve their dreams.
 
 His AV videos to leak are shock to many 
-[img]https://i.ibb.co/60VZyZJ/photo-2023-03-19-16-28-07.jpg[/img]
-[img]https://i.ibb.co/TwQz5Jt/photo-2023-03-19-17-03-06-2.jpg[/img]
-[img]https://i.ibb.co/WyfWMdB/photo-2023-03-19-17-03-06-3.jpg[/img]
-[img]https://i.ibb.co/PWrfPWF/photo-2023-03-19-17-03-06-4.jpg[/img]
-[img]https://i.ibb.co/hmLs41F/photo-2023-03-19-17-03-06-5.jpg[/img]
-[img]https://i.ibb.co/CsZnzkb/photo-2023-03-19-17-03-06.jpg[/img]
+![https://i.ibb.co/60VZyZJ/photo-2023-03-19-16-28-07.jpg](https://i.ibb.co/60VZyZJ/photo-2023-03-19-16-28-07.jpg)
+![https://i.ibb.co/TwQz5Jt/photo-2023-03-19-17-03-06-2.jpg](https://i.ibb.co/TwQz5Jt/photo-2023-03-19-17-03-06-2.jpg)
+![https://i.ibb.co/WyfWMdB/photo-2023-03-19-17-03-06-3.jpg](https://i.ibb.co/WyfWMdB/photo-2023-03-19-17-03-06-3.jpg)
+![https://i.ibb.co/PWrfPWF/photo-2023-03-19-17-03-06-4.jpg](https://i.ibb.co/PWrfPWF/photo-2023-03-19-17-03-06-4.jpg)
+![https://i.ibb.co/hmLs41F/photo-2023-03-19-17-03-06-5.jpg](https://i.ibb.co/hmLs41F/photo-2023-03-19-17-03-06-5.jpg)
+![https://i.ibb.co/CsZnzkb/photo-2023-03-19-17-03-06.jpg](https://i.ibb.co/CsZnzkb/photo-2023-03-19-17-03-06.jpg)
+![https://i.ibb.co/58QxxPc/photo-2023-03-19-17-03-07-2.jpg](https://i.ibb.co/58QxxPc/photo-2023-03-19-17-03-07-2.jpg)
+![https://i.ibb.co/T1jRJ7j/photo-2023-03-19-17-03-07.jpg](https://i.ibb.co/T1jRJ7j/photo-2023-03-19-17-03-07.jpg)
+
+
 
 [https://shoppy.gg/product/oGaFkFg](https://shoppy.gg/product/oGaFkFg)
 
 <!-- more -->
 
 
-[img]https://i.ibb.co/58QxxPc/photo-2023-03-19-17-03-07-2.jpg[/img]
-[img]https://i.ibb.co/T1jRJ7j/photo-2023-03-19-17-03-07.jpg[/img]
+![https://i.ibb.co/n7xgwSk/photo-2023-03-19-23-07-03-2.jpg](https://i.ibb.co/n7xgwSk/photo-2023-03-19-23-07-03-2.jpg)
+![https://i.ibb.co/MnCVtPQ/photo-2023-03-19-23-07-03-4.jpg](https://i.ibb.co/MnCVtPQ/photo-2023-03-19-23-07-03-4.jpg)
+![https://i.ibb.co/P6tkTvm/photo-2023-03-19-23-07-03.jpg](https://i.ibb.co/P6tkTvm/photo-2023-03-19-23-07-03.jpg)
 
-[img]https://i.ibb.co/n7xgwSk/photo-2023-03-19-23-07-03-2.jpg[/img]
-[img]https://i.ibb.co/MnCVtPQ/photo-2023-03-19-23-07-03-4.jpg[/img]
-[img]https://i.ibb.co/P6tkTvm/photo-2023-03-19-23-07-03.jpg[/img]
-
-[img]https://i.ibb.co/MRBwPhK/Milked.jpg[/img]
-
+![https://i.ibb.co/MRBwPhK/Milked.jpg](https://i.ibb.co/MRBwPhK/Milked.jpg)
 
 Available for trade or part of our [NFT access pass](https://opensea.io/collection/thevinylshacktastycollection?search%5BsortAscending%5D=true&search%5BsortBy%5D=PRICE&search%5Btoggles%5D%5B0%5D=BUY_NOW)
