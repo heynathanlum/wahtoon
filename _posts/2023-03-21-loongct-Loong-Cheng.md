@@ -20,4 +20,4 @@ Buy link $3 https://shoppy.gg/product/652X6pt
 ![https://i.ibb.co/qFQnym3/18401709.jpg](https://i.ibb.co/qFQnym3/18401709.jpg)
 ![https://i.ibb.co/SXZwRLx/23423863.jpg](https://i.ibb.co/SXZwRLx/23423863.jpg)
 
-Available for trade or part of our [NFT access pass](https://opensea.io/collection/thevinylshacktastycollection?search%5BsortAscending%5D=true&search%5BsortBy%5D=PRICE&search%5Btoggles%5D%5B0%5D=BUY_NOW)
+Available for trade or part of our [NFT access pass](https://opensea.io/collection/wahtoon-com-mdrt-lifetime).
