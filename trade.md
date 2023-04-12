@@ -9,7 +9,8 @@ excerpt: "Wahtoon.com Singapore's best source for tasty images of Asian Persuasi
 
 Wahtoon.com Singapore's best source for tasty images of Asian Persuasion celebs and athletes. If it ain't tasty, it ain't gonna be here.
 
-{% include button.html text="Buy some videos ☕️" link="https://shoppy.gg/@heynathanlum" color="#f68140" %} {% include button.html text="Tweet it" icon="twitter" link="https://twitter.com/intent/tweet/?url=https://wahtoon.com" color="#0d94e7" %} {% include button.html text="Buy a LIFETIME NFT PASS ⚗️" link="https://opensea.io/collection/thevinylshacktastycollection?search[sortAscending]=true&search[sortBy]=PRICE&search[toggles][0]=BUY_NOW" %} {% include button.html text="TRADE" link="https://shoppy.gg/@heynathanlum/query" color="#f68140" %}
+{% include button.html text="Buy some videos ☕️" link="https://shoppy.gg/@heynathanlum" color="#f68140" %} {% include button.html text="Tweet it" icon="twitter" link="https://twitter.com/intent/tweet/?url=https://wahtoon.com" color="#0d94e7" %} {% include button.html text="Buy a LIFETIME NFT PASS ⚗️" link="https://opensea.io/collection/wahtoon-com-mdrt-lifetime" %} {% include button.html text="TRADE" link="https://shoppy.gg/@heynathanlum/query" color="#f68140" %}
+
 
 
 ## Will trade for. 
@@ -48,6 +49,6 @@ Wahtoon.com Singapore's best source for tasty images of Asian Persuasion celebs 
 
 To trade complete this [form](https://shoppy.gg/@heynathanlum/query) and enter who and what you have to trade and what you want to trade foor
 
-Buy a [NFT Pass](https://opensea.io/collection/thevinylshacktastycollection?search[sortAscending]=true&search[sortBy]=PRICE&search[toggles][0]=BUY_NOW) and get lifetime access to all the hot guys pics we get current and future.
+Buy a [NFT Pass](https://opensea.io/collection/wahtoon-com-mdrt-lifetime) and get lifetime access to all the hot guys pics we get current and future.
 
 
