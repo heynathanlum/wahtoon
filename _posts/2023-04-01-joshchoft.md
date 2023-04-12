@@ -40,4 +40,4 @@ As a professional in the fitness industry and a content creator on JustForFans, 
 [img]https://i.ibb.co/HtH54Tw/joshchovip-2022-03-30-1170x2532-494e4f070ea48bac6ccdcb9c0534529a-result.jpg[/img]
 [img]https://i.ibb.co/d4JSg9j/joshchovip-2022-03-30-1170x2532-665f74d86ea8c4c866a0327b63708c2a-result.jpg[/img]
 
-Available for trade or part of our [NFT access pass](https://opensea.io/collection/thevinylshacktastycollection?search%5BsortAscending%5D=true&search%5BsortBy%5D=PRICE&search%5Btoggles%5D%5B0%5D=BUY_NOW)
+Available for trade or part of our [NFT access pass](https://opensea.io/collection/wahtoon-com-mdrt-lifetime).
