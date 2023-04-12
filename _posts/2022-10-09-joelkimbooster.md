@@ -12,8 +12,7 @@ Joel Kim Booster is a funny guy who never fails to make you burst out laughing w
 <!-- more -->
 [Joel Kim Booster Leaks!](https://shoppy.gg/product/h4Ov30h)
 
-NUDES FREE. If you like work support by buy [NFT access pass](https://opensea.io/collection/thevinylshacktastycollection?search%5BsortAscending%5D=true&search%5BsortBy%5D=PRICE&search%5Btoggles%5D%5B0%5D=BUY_NOW)
+Available for trade or part of our [NFT access pass](https://opensea.io/collection/wahtoon-com-mdrt-lifetime).
 Screenshots intelegram group https://t.me/gxtube_net More screenshot in private MDRT group and Videos in COT group.
 
-Available for trade or part of our [NFT access pass](https://opensea.io/collection/thevinylshacktastycollection?search%5BsortAscending%5D=true&search%5BsortBy%5D=PRICE&search%5Btoggles%5D%5B0%5D=BUY_NOW). 
 
