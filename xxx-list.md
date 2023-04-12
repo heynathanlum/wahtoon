@@ -60,9 +60,9 @@ Wahtoon.com Singapore's best source for tasty images of Asian Persuasion celebs 
 - **vlad_caastillo** JFF content 📷 🎥
 - **Joel Booster Kim** Hollywood star with thirsty nudes. His butt plug soo nice de
 
-To trade complete this [form](https://shoppy.gg/@heynathanlum/query) and enter who and what you have to trade and what you want to trade foor
+To trade complete this [form](https://shoppy.gg/@heynathanlum/query) and enter who and what you have to trade and what you want to trade for
 
-Buy a [NFT Pass](https://opensea.io/collection/thevinylshacktastycollection?search[sortAscending]=true&search[sortBy]=PRICE&search[toggles][0]=BUY_NOW) and get lifetime access to all the hot guys pics we get current and future.
+Buy a [NFT Pass](https://opensea.io/collection/wahtoon-com-mdrt-lifetime) and get lifetime access to all the hot guys pics we get current and future.
 
 
 Owners of NFT pass get access to COT and TOT telegram groups.
