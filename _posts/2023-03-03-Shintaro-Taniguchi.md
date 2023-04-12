@@ -43,4 +43,4 @@ His AV videos to leak are shock to many
 
 ![https://i.ibb.co/MRBwPhK/Milked.jpg](https://i.ibb.co/MRBwPhK/Milked.jpg)
 
-Available for trade or part of our [NFT access pass](https://opensea.io/collection/thevinylshacktastycollection?search%5BsortAscending%5D=true&search%5BsortBy%5D=PRICE&search%5Btoggles%5D%5B0%5D=BUY_NOW)
+Available for trade or part of our [NFT access pass](https://opensea.io/collection/wahtoon-com-mdrt-lifetime).
