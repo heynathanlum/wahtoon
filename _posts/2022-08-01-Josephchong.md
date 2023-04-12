@@ -37,8 +37,7 @@ In conclusion, we must be mindful of the potential consequences of engaging in i
 
 [XXX on exxxpose.me](https://www.exxxpose.me/post/?id=398348)
 
-NUDES FREE. If you like work support by buy [NFT access pass](https://opensea.io/collection/thevinylshacktastycollection?search%5BsortAscending%5D=true&search%5BsortBy%5D=PRICE&search%5Btoggles%5D%5B0%5D=BUY_NOW)
+NUDES FREE. If you like work support by buy [NFT access pass](https://opensea.io/collection/wahtoon-com-mdrt-lifetime).
 Screenshots intelegram group https://t.me/gxtube_net More screenshot in private MDRT group and Videos in COT group.
 
-Available for trade or part of our [NFT access pass](https://opensea.io/collection/thevinylshacktastycollection?search%5BsortAscending%5D=true&search%5BsortBy%5D=PRICE&search%5Btoggles%5D%5B0%5D=BUY_NOW). 
 
