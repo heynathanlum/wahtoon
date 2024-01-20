@@ -67,7 +67,11 @@ Wahtoon.com Singapore's best source for tasty images of Asian Persuasion celebs 
 - **Brightman Sio** SGAG influencer 📷 🎥 (preview)
 - **Lee Yu Wen** 📷
 - **Totallytaufiq Taufiq Idris** 📷
-- **Daryl Choo Deepblusea** Big 📷 
+- **Daryl Choo Deepblusea** Big 📷
+- **Joshua Cho jyoonsang** old OF contents no longer availalbe music graduate piano 📷 🎥 (preview)
+- **Shintaro Taniguchi** Japanese reality TV star 🎥
+- **Minothanks** leaked videos wank 🎥
+- **ricky.tw** nutritionist ricky  🎥
 
 To trade complete this [form](https://shoppy.gg/@heynathanlum/query) and enter who and what you have to trade and what you want to trade for
 
