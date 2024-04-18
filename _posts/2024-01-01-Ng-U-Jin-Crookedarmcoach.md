@@ -3,7 +3,7 @@ title: Ng U-Jin crookedarmcoach Singapore
 categories:
 - manhunt
 - Singapore
-- LeCrossfit
+- Crossfit
 feature_image: "https://picsum.photos/2560/600?image=872"
 ---
 
